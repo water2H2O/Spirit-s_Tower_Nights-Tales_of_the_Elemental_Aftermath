@@ -1,0 +1,2 @@
+# Spirit-s_Tower_Nights-Tales_of_the_Elemental_Aftermath
+包含水水个人世界观《水塔夜谈》的大部分可公开资料
